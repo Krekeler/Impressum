@@ -6,7 +6,7 @@ Dipl.-Wi.-Ing. Harald Krekeler<br>
 Friedrich-Engels-Straße 45<br>
 15712 Königs Wusterhausen<br>
 Germany<br>
-Phone +49 3375 203620<br>
+Phone +49 3375 203631<br>
 Fax +49 3375 203622<br>
 E-mail mail@krekeler.de<br>
 VAT-ID. DE136377489<br>
